@@ -1,0 +1,2 @@
+# BigData26_B_2411533005_MiftahulHudaAmri
+bigdata
